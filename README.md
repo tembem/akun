@@ -43,6 +43,7 @@ Berikut daftar akunya:
 - Denny Indrayana. Mantan Menteri 2009 dan 2011. [Twitter](https://twitter.com/dennyindrayana)
 - Muhammad Nuh. Mantan Menteri 2007 - 2014. [Twitter](https://twitter.com/Mohammad_Nuh_)
 - Susi Pudjiastuti. Menteri 2014 - sekarang. [Twitter](https://twitter.com/susipudjiastuti)
+- Rudiantara. Menteri 2014 - sekarang. [Twitter](https://twitter.com/rudiantara_id)
 
 
 ### Gubernur, Walikota, Bupati dan Pejabat Pemerintah Daerah
